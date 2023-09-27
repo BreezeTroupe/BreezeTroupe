@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @BreezeTroupe
-- 👀 I’m interested in photography
+- 👋 Hi, I’m @BreezeTroupe aka The Goat
+- 👀 I’m interested in photography 
 - 💞️ I’m looking to collaborate on photography events
 - 📫 How to reach me ...
-- insta: pawan_pareeky
+- insta: pawan_pareeky at OnlyFans.com(link in bio)
   
 
 <!---
